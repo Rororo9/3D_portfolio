@@ -10,4 +10,4 @@ https://rororo9.github.io/3D_portfolio/
 
 ![msedge_udLv2vp7HX](https://github.com/Rororo9/3D_portfolio/assets/40234315/e7022753-f76c-4167-99bd-3276446b632c)
 
-![ShareX_qhNPyuIH62](https://github.com/Rororo9/3D_portfolio/assets/40234315/bd91c0fb-b599-4310-8f2a-7618f08210be)
+![msedge_kn64UV3rAM](https://github.com/Rororo9/3D_portfolio/assets/40234315/1c9ba579-9066-4fb7-b53f-1aba3417a146)
